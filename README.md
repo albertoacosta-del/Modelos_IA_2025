@@ -11,4 +11,4 @@ Carlos Alberto Acosta Angarita - CC 1065596504 - Ingeniería Industrial.
 
 Entrega 2: https://youtu.be/5mo944waenM
 
-Entrega Final:
+Entrega Final: https://youtu.be/UakNPJfcim8
